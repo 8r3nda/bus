@@ -1,0 +1,6 @@
+![A](https://github.com/8r3nda/bus/assets/135379583/b55ed6ec-9778-4f91-8275-92148fa1a573)
+![B](https://github.com/8r3nda/bus/assets/135379583/ff46027d-3c71-496e-a495-93d4311c7f68)
+![C](https://github.com/8r3nda/bus/assets/135379583/786ef51c-11bb-4120-8be9-bcc2a7843090)
+![D](https://github.com/8r3nda/bus/assets/135379583/d7ed2f23-b3d2-4ad0-b2f6-eaf5861402e4)
+![E](https://github.com/8r3nda/bus/assets/135379583/92d48c7d-dbdd-4056-8daf-048761c9baff)
+![f](https://github.com/8r3nda/bus/assets/135379583/b09bbd86-09dc-4b82-92ce-d35727189490)
